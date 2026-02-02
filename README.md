@@ -1,1 +1,0 @@
-# Pioneering-Myoelectric-Prosthetic-Design-A-Convergence-of-Human-Integrated-Bionics
